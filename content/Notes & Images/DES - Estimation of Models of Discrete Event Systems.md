@@ -1,0 +1,1 @@
+![[17 - Basics of statistics and applications(20-22)_211218_153510.pdf]]
